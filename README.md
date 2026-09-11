@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center"> <img width="400" height="400" alt="tumblr_pk0cvdTITi1xvoxjho6_r1_400" src="https://github.com/user-attachments/assets/93261bc8-f34f-4c2f-a5c5-5404ef792c43" /> </p>
 
-<!--
-**hearts4jax/hearts4jax** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+𑣲 kitty
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+ 22 , she , syshost
+</p>
+
+<p align="center">
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+</p>
+
+
+<p align="center"> <img width="400" height="400" alt="tumblr_pk0cvdTITi1xvoxjho3_r2_400" src="https://github.com/user-attachments/assets/bb039eba-1c84-4531-bc6a-494830e452ce" /> </p>
+
+
+
