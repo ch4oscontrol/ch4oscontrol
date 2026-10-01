@@ -1,11 +1,12 @@
-<p align="center"> <img width="400" height="400" alt="tumblr_pk0cvdTITi1xvoxjho6_r1_400" src="https://github.com/user-attachments/assets/93261bc8-f34f-4c2f-a5c5-5404ef792c43" /> </p>
+<p align="center"> <img width="828" height="663" alt="background-removed(33)" src="https://github.com/user-attachments/assets/7b9f56b0-e0fe-4edf-97c9-30e70bc1ecc6"
+ /> </p>
 
 <p align="center">
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 </p>
 
 <p align="center">
-𑣲 kitty
+𑣲 shadow
 </p>
 
 <p align="center">
@@ -17,7 +18,8 @@
 </p>
 
 
-<p align="center"> <img width="400" height="400" alt="tumblr_pk0cvdTITi1xvoxjho3_r2_400" src="https://github.com/user-attachments/assets/bb039eba-1c84-4531-bc6a-494830e452ce" /> </p>
+<p align="center"> <img width="540" height="549" alt="tumblr_86047a0812c63e192744d060d1a26200_477f6ea3_540" src="https://github.com/user-attachments/assets/04c7ce32-54ba-419c-8b44-8f773fc67c2d" />
+ </p>
 
 
 
