@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
- 22 , she , syshost
+ 22 , any pronouns , syshost
 </p>
 
 <p align="center">
